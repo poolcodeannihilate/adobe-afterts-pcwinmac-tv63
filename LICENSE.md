@@ -1,4 +1,4 @@
-# 
+# Instant Adobe After Effects presets for Mac OS | Secure Adobe After Effects presets for PC Windows. Featuring batch-processing and time-stretching — optimized for maximum performance on every platform.
 
 
 
